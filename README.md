@@ -1,1 +1,0 @@
-# shajin-sha.github.io
